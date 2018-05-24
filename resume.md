@@ -2,8 +2,8 @@
 
 Mahasiswa Ilmu Komputer IPB
 
-*Asrama Putri PPKU A3 IPB*<br/>
-*+62 812-3416-2979*<br/>
+*Asrama Putri PPKU A3 IPB*<br>
+*+62 812-3416-2979*<br>
 *fadiaaar@gmail.com*
 
 ## Pendidikan
